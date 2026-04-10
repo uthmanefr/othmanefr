@@ -1,4 +1,4 @@
-## Hi, I'm Farhan 👋
+## Hi, I'm Othmane Farhan 👋
 
 I'm a Computer Engineering student at ENSA Tétouan with a background in graphic design.  
 I'm interested in technology, problem-solving, and building practical projects while continuously learning new skills.
